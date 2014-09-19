@@ -33,3 +33,15 @@ These Identified "Metadivinities" are highly-concentrated Pananimic Entity Provi
 - Devotees of LORD JARGONNATH prepare 67 servings of sauerkraut daily during the festival. If unable to do so, they may alternatively declare themselves “Out Sick,” provided they call this information into HIS Sick Line prior to 7:30 AM.
 - In 1483, during HIS last physical incarnation within the Existosphere, LORD JARGONNATH’s Executive Board was attacked during its annual retreat on Gran Canaria and forced into exile by the King of Spain. 
 - LORD JARGONNATH is the patron of the third manifestation of the “ample wording” of the Policy and Procedure. When HE plays HIS Flute of Integrity, HE reaches out to allow us to embrace our Core Competency, Empowering us to Move the Needle and establish Scalable Best Practices.
+
+High Holy Days
+--------------
+- Ymas
+- Qmas
+- Peaster
+- Brassicalia
+- Firstfrost
+
+Common Supplications
+--------------------
+"Helmoquinth!"
