@@ -34,6 +34,22 @@ These Identified "Metadivinities" are highly-concentrated Pananimic Entity Provi
 - In 1483, during HIS last physical incarnation within the Existosphere, LORD JARGONNATH’s Executive Board was attacked during its annual retreat on Gran Canaria and forced into exile by the King of Spain. 
 - LORD JARGONNATH is the patron of the third manifestation of the “ample wording” of the Policy and Procedure. When HE plays HIS Flute of Integrity, HE reaches out to allow us to embrace our Core Competency, Empowering us to Move the Needle and establish Scalable Best Practices.
 
+**ACHO**
+- ACHO the Quasi-Eternal manifests as an enormous boulder. 
+- ACHO supports the other Metadivinities, and is OMNIPRESENT between the OMPHALOS and the SURFACE.
+
+**SELVANS**
+- SELVANS is Overseer of Boundaries between the Wild and the Nonwild. 
+- The leaves and branches of SELVANS embrace you.
+- HE has [COME BEFORE](http://books.google.com/books?id=TVAtdzbV-yIC&pg=PA149&lpg=PA149&dq=selvans+etruscan&source=bl&ots=yWtYUYKZIa&sig=3RHkOLxwI9RhpxXq9RTwg6LP5Pw&hl=en&sa=X&ei=Ik4kVMDxNYeoogTbk4KgBg&ved=0CCUQ6AEwAQ#v=onepage&q=selvans%20etruscan&f=false).
+- ANTHUOR is sheltered by SELVANS, who can also take his form. 
+
+**GALTROS**
+- GALTROS is the "ONE WHO WARNS."
+
+
+
+
 High Holy Days
 --------------
 - Ymas
