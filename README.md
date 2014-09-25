@@ -45,9 +45,13 @@ These Identified "Metadivinities" are highly-concentrated Pananimic Entity Provi
 - ANTHUOR is sheltered by SELVANS, who can also take his form. 
 
 **GALTROS**
-- GALTROS is the "ONE WHO WARNS."
+- GALTROS is the "ONE WHO WARNS." She HOLDS THE BALANCE.
+- SHE plays an ETERNAL GAME with SUBIUS.
+- SHE is SMALL but POWERFUL.
 
-
+**SUBIUS**
+- SUBIUS is the TOOL-MAKER, and BRINGER-of-FIRE
+- SUBIUS is with ACHO, and ACHO with SUBIUS.
 
 
 High Holy Days
